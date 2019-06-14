@@ -5,7 +5,7 @@ Adelaide is the capital city of the state of South Australia, and the fifth-most
 ## To See/Do
 
 * [Adelaide Central Market](https://adelaidecentralmarket.com.au)
-Rundle st
+* Rundle st
 
 ## To Eat/Drink
 
